@@ -1,1 +1,0 @@
-# Hackaton-L-Or-al
